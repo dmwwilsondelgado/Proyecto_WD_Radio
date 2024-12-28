@@ -1,1 +1,1 @@
-mm no se cuando empezar este proyecto
+la emisora aún o está lista y debo esperar los requisitos 
