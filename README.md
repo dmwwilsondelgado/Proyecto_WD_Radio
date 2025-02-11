@@ -1,1 +1,1 @@
-actualizar redmi
+que hacemos con este proyectp
